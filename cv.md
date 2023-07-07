@@ -2,6 +2,8 @@
 
 # Uladzislau Bayan
 
+![Uladzislau Bayan](https://sun9-29.userapi.com/impg/c855432/v855432892/1acfd3/bAX7AvEhMPI.jpg?size=1080x1080&quality=96&sign=0dfbffa67bf9c9576e86b92ac649f5b5&type=album)
+
 # My Contact Info:
 
 **Phone:** +375291347508  
